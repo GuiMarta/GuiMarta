@@ -1,4 +1,4 @@
-###  Olá! Seja Bem-Vindo ao meu Github👋
+### Seja Bem-Vindo ao meu Github👋
  Eu sou Guilherme Marta, 
 
 🔗 *Entre em contato comigo*:
